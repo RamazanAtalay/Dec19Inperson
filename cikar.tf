@@ -1,4 +1,0 @@
-hdashagsdha
-ekleme
-yaptim
-hgdahsgdhsgd
